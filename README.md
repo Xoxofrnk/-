@@ -2,4 +2,4 @@
 *в 100 аудитории жарко*
 **сколько можно**
 >я луша шуша
-! [] https://pp.userapi.com/c844416/v844416390/e5999/Wx-lo9Ex4CY.jpg) 
+! [] (https://pp.userapi.com/c844416/v844416390/e5999/Wx-lo9Ex4CY.jpg) 
